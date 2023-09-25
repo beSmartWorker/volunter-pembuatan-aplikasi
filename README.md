@@ -8,3 +8,4 @@ Silahkan gunakan format berikut:<br>
 
 Berikut adalah daftar yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Halim Teguh Saputro, [LinkedIn](https://www.linkedin.com/in/halimteguh/).
